@@ -29,7 +29,7 @@ B.A. in French Language and Literature丨**Zhejiang University**
 
 ## My Interests
 
-✈️Traveling (Travelled to 29 of China's 34 provinces and 12 countries including China!)  
+✈️Traveling (Travelled to 29 of China's 34 provinces and 17 countries including China!)  
 📸Photography (Canon EOS 60D & Nikon 1 j5)  
 🎮Video games (Switch & Steam)
 
